@@ -1,2 +1,2 @@
 # hello-world
-it is my first repository on github
+I am melaku and my crush sits infront me and I can't study right now I am watching at her
